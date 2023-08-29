@@ -1,0 +1,1 @@
+This is the whole procedures taken as i embark on my C programming language journey hope you can also study this codes to understand them i'll try my best  to make them self explanatory and you can reach out to me on +2348051167192 for more explanation i'll be happy to help
